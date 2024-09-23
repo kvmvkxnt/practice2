@@ -1,3 +1,4 @@
-that's some file
-
-it's a text file
+I hate n1gg3r$
+I hate n1gg3r$
+I hate n1gg3r$
+I hate n1gg3r$
